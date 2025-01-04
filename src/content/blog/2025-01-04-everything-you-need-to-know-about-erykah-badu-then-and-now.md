@@ -47,8 +47,6 @@ She has three children, each with a story tied to influential figures in hip-hop
 
 She didn’t just climb charts—she sparked movements. The **Beautiful Love Incorporated Nonprofit Development (BLIND)**, launched in 1997, channels resources into inner-city youth and their artistic growth. The impact of her work on neo-soul can’t be overstated. Her spirit of evolution, her willingness to experiment, and her dedication to community have all influenced contemporary artists worldwide. Who else has flipped the script in such style?
 
-
-
 ## Some of Erykah's Most Notable Performances of Her Career
 
 She never just sang; she made moments that became cultural milestones. Every time Erykah Badu steps on a stage, she leaves a lasting impression that sparks conversation long after the show wraps.
@@ -80,3 +78,53 @@ She stirred up plenty of buzz with this one. The music video for **"Window Seat"
 #### Bag Lady
 
 She took home another Grammy for **“Bag Lady,”** reminding everyone that her consistency on stage wasn’t a one-time thing. That performance remains a highlight for many fans, capturing her soulful tone and impeccable range. It’s a piece of her musical legacy that continues to inspire new artists year after year.
+
+
+
+## Erykah Badu’s Personal Life
+
+She never found success by accident—her strong family roots helped shape the artist we know today. There’s a powerful matriarchal thread running through Erykah Badu’s life that influences how she raises her children, views spirituality, and handles her ever-evolving career.
+
+### Family Dynamics
+
+Her support system is no solo act. Every family member plays a role, and she embraces the village mentality at every turn.
+
+#### Maternal Influences
+
+She comes from a line of formidable women who led households with authority and love. **Her mother** isn’t just a grandmother; she’s a daily presence, caring for Badu’s children and acting as the “boss” of the family. **Both grandmothers**, nearing 90, remain active in her life—one even served as her accountant, while the other was her archivist. Imagine the wisdom passed down through decades of experience.
+
+#### Extended Family
+
+She keeps it all in the family. **Her sister Koryan (Koko)** is a personal assistant, house manager, and background vocalist. There’s a palpable closeness here, where business merges with personal life, and everyone contributes to the overall harmony.
+
+### Motherhood
+
+Her approach to parenting defies easy labels. She’s not juggling kids alone in a silo; she’s building a cohesive community around them.
+
+#### Children and Co-Parenting
+
+Badu shares her life with **three children**:
+
+* **Seven Sirius Benjamin**
+
+   (with André 3000)
+* **Puma Sabti Curry**
+
+   (with The D.O.C.)
+* **Mars Merkaba Thedford**
+
+   (with Jay Electronica)
+
+She maintains warm relationships with all three fathers, even calling **André 3000** her best friend for nearly two decades. Instead of describing herself as a single mother, she prefers to see her family as a unified team, working together for her children’s well-being.
+
+### Professional and Personal Integration
+
+Her devotion to family doesn’t end with her own offspring. She’s taken that nurturing spirit and expanded it into a broader service for others.
+
+#### Role as a Doula
+
+She isn’t afraid to shift gears when passion calls. **Badu** is a certified doula, having assisted in over 50 births across 24 years. She also founded **BADOULA**, her own doula service that provides wraparound support for expectant parents. That dedication to new life underscores her commitment to building communities—starting at birth.
+
+#### Parenting Philosophy
+
+She holds education in high regard, favoring individualized learning and growth. She even homeschooled **Seven** early on so he could gain a firm academic footing. She encourages her children to chart their own paths but keeps them tethered to a close-knit support system that fosters confidence and self-discovery. After all, who wants to watch their child grow up without the guiding force of love and family?
